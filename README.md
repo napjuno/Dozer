@@ -3,9 +3,13 @@
 <p align="center">
   <img width="400" height="400" src="IMG_3886.gif">
 </p>
-<h1  align="center";"> "Wip."</h1> <img width="100" height="100" src="IMG_3890.png">
+<h1  align="center";"> "Wip."</h1> 
+<p align="center">
+<img width="100" height="100" src="IMG_3890.png">
 
 
+<p align="center">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=500&color=F79C07&vCenter=true&random=true&width=435&lines=Would+you..+Warn-a-be+my+friend%3F;%E2%80%9CHe+watches+over+me+when+I+sleep!%E2%80%9D;Press+the+button+to+brush+my+mane!;Brushy%2C+Brushy%2C+Brushy%2C+Brushy!.." alt="Typing SVG"/></a>
 
  ⁞ 𝙸 𝚍𝚘𝚗’𝚝 𝚕𝚒𝚔𝚎 𝚜𝚝𝚊𝚛𝚝𝚒𝚗𝚐 𝚌𝚘𝚗𝚟𝚎𝚛𝚜𝚊𝚝𝚒𝚘𝚗𝚜, 𝚋𝚞𝚝 𝙸 𝚍𝚘 𝚐𝚛𝚎𝚎𝚝 𝚘𝚝𝚑𝚎𝚛𝚜 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜.
 
