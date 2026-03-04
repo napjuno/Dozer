@@ -23,9 +23,9 @@
 𝙎𝙋𝙀𝘾𝙄𝙁𝙄𝘾 𝘿𝙉𝙄: 𝙍𝙐𝘿𝙀/𝙋𝙍𝙊𝘽𝙇𝙀𝙈𝘼𝙏𝙄𝘾 𝙀𝙓 𝙁𝙍𝙄𝙀𝙉𝘿𝙎 , 𝙋𝙋𝙇 𝙄 𝙃𝘼𝙑𝙀 𝘽𝙇𝙊𝘾𝙆𝙀𝘿 𝙋𝙀𝙍𝙈𝘼𝙉𝙀𝙉𝙏𝙇𝙔, 𝙎𝙏𝙃 𝘼𝙍𝙀𝘼.
 <h1  align="center";">𝘾𝙝𝙚𝙘𝙠 𝙢𝙮 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙛𝙤𝙧 𝙢𝙤𝙧𝙚 𝙞𝙣𝙛𝙤𝙧𝙢𝙖𝙩𝙞𝙤𝙣.</h1>
 <p align="center">
-  <img width="490" height="330" src="IMG_3921.jpeg">
+  <img width="100" height="330" src="IMG_4135.gif">
  
-<p align="center">  La goiz discussing Dancing Ohio Haggy Waggi
+<p align="center">  FOREVER TAKEN BY MY BF DANNY :3 !! MY HUSBAND IS THE BEST PERSON EVA
 
 
  <a href="https://aksual.straw.page">Main strawpage</a> <a href="https://www.imood.com/users/aksually">My Imood page</a> 
