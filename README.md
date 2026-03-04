@@ -25,7 +25,7 @@
 <p align="center">
   <img width="100" height="330" src="IMG_4135.gif">
  
-<p align="center">  FOREVER TAKEN BY MY BF DANNY :3 !! MY HUSBAND IS THE BEST PERSON EVA
+<p align="center">  ehhe
 
 
  <a href="https://aksual.straw.page">Main strawpage</a> <a href="https://www.imood.com/users/aksually">My Imood page</a> 
