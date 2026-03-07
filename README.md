@@ -25,7 +25,11 @@
 <p align="center">
   <img width="100" height="330" src="IMG_4135.gif">
  
-<p align="center">  If you have seen THOSE skins of mines, i suggest you just HIDE me and go on with your day, I am not there for harassment and arguements. I am currently coping and wishing myself to get better at least this year.
+<p align="center">  Before you go and harass me farther; If you have seen THOSE skins of mines, i suggest you just HIDE me and go on with your day, I am not there for harassment and arguements. I do research and have recently helped donated to spread gun violence awareness, I am not encouraging others to normalize gun violence.
+
+
+<p align="center">
+ <a href="https://takeaction.sandyhookpromise.org/a/foundation?_ga=2.206994384.259029349.1772909873-1389291159.1770524154">Donate to Sandy Hook Promise</a>
 
 
  <a href="https://aksual.straw.page">Main strawpage</a> <a href="https://www.imood.com/users/aksually">My Imood page</a> 
