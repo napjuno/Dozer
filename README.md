@@ -9,7 +9,9 @@
 
 
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=500&color=F79C07&vCenter=true&random=true&width=435&lines=Would+you..+Warn-a-be+my+friend%3F;%E2%80%9CHe+watches+over+me+when+I+sleep!%E2%80%9D;Press+the+button+to+brush+my+mane!;Brushy%2C+Brushy%2C+Brushy%2C+Brushy!.." alt="Typing SVG"/></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2300&pause=2000&color=571414&random=true&width=435&lines=%E2%80%9CThe+defense.+maintain+harmony%E2%80%9D;%E2%80%9CI+love+you%2C+do+you+love+me%3F%E2%80%9D;%E2%80%9Cyou+and+i+are+of+the+same%E2%80%9C;%E2%80%9CHang+in+there!%E2%80%9D;%E2%80%9CMay+your+love+stand%E2%80%9D" alt="Typing SVG" /></a>
+
+
 
  ⁞ 𝙸 𝚍𝚘𝚗’𝚝 𝚕𝚒𝚔𝚎 𝚜𝚝𝚊𝚛𝚝𝚒𝚗𝚐 𝚌𝚘𝚗𝚟𝚎𝚛𝚜𝚊𝚝𝚒𝚘𝚗𝚜, 𝚋𝚞𝚝 𝙸 𝚍𝚘 𝚐𝚛𝚎𝚎𝚝 𝚘𝚝𝚑𝚎𝚛𝚜 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜.
 
